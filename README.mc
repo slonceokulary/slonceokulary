@@ -44,5 +44,3 @@ bi bi bi bi bi bi biba, dzisiaj tańcze jak michael moonwalk na karaibach.
 bi bi bi bi bi bi biba, dzisiaj dostajecie nakaz uśmiechania od per dżinna.
 bi bi bi bi bi bi biba, dzisiaj tańcze jak michael moonwalk na karaibach.
 
-
-Tekst pochodzi z https://www.tekstowo.pl/per-dzinn-zupan/biba
